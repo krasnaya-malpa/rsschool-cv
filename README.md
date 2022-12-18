@@ -1,1 +1,1 @@
-# rsschool-cv
+https://krasnaya-malpa.github.io/rsschool-cv/
